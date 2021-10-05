@@ -7,4 +7,4 @@ im on `youtube` `@cooldudeseven7`\
 also feel free to comment on the disscussions (click view  on github and click disscussions) `you may get **EXCLUSIVE** edit access`\
 \
 here my latest  projects\
-[portfolio](
+[portfolio](https://cooldudeseven7.github.io/Cool7Codes.github.io/)

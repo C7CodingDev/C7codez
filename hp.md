@@ -8,3 +8,4 @@ also feel free to comment on the disscussions (click view  on github and click d
 \
 here my latest  projects\
 [portfolio](https://cooldudeseven7.github.io/Cool7Codes.github.io/)
+[portfolio on replit {does not have all fetures}](https://my-portfolio.awesomecds7.repl.co/)
